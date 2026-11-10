@@ -29,7 +29,7 @@ I am actively seeking entry-level opportunities in **accounting, finance, back-o
 * Ensured high-level customer service, efficient order processing, and coordinated effectively with the team[cite: 2].
 
 ### 🏢 Management Trainee - Tax Department | Mahfel Huq & Co. (Dhaka, Bangladesh)
-*(Aug 2022 – Feb 2023)*[cite: 2]
+*(oct 2022 – Feb 2023)*[cite: 2]
 * Assisted in preparing and filing individual and corporate income tax returns[cite: 2].
 * Handled VAT documentation, tax compliance, and client financial records management using Microsoft Excel[cite: 2].
 
